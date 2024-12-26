@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Anything
 - 📫 How to reach me email pfvanness@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I can't beat hardcore minecraft
+- ⚡ Fun fact: I don't update this enough
 
 <!---
 Peterfvn/Peterfvn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
